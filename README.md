@@ -1,0 +1,1 @@
+# sama-senegal-1.0
